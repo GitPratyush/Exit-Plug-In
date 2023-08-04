@@ -1,1 +1,1 @@
-https://mahajanpreksha.github.io/Exit-Plug-In/
+https://gitpratyush.github.io/Exit-Plug-In/
